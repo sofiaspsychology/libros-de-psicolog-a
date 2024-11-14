@@ -1,1 +1,1 @@
-# libros-de-psicolog-a
+# libros-de-psicología
